@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @TheDimensioneer
+- 👀 I’m interested in Doctor Who and thats it LMAO
+- 🌱 I’m currently learning UE4 and Unity aswell as Blender and Gmod
+- 📫 How to reach me:
+-- Discord: TheDimensione#5302
+-- Twitter: @Dimensioneeer
